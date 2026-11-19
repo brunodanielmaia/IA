@@ -1,0 +1,19 @@
+Transforme a imagem anexada em um pôster vertical inspirado na arte promocional de Grand Theft Auto VI, ambientado em Vice City. Use as pessoas da imagem como protagonistas. A prioridade máxima é que cada uma continue imediatamente reconhecível, mesmo com as novas roupas e poses.
+
+ROSTOS E IDENTIDADE
+Use a imagem anexada como referência principal para cada rosto. Preserve o formato da cabeça e do maxilar, o desenho e a distância dos olhos, as sobrancelhas, o nariz, a boca e as particularidades do sorriso. Mantenha a idade aparente, o tom de pele, a linha do cabelo, o penteado, os óculos e a barba de cada pessoa, quando presentes. Respeite as proporções corporais e a diferença de altura entre as pessoas. Aplique o traço ilustrado acompanhando as feições individuais. Se uma sombra, um acessório ou um novo ângulo prejudicar a semelhança, priorize o rosto da referência.
+
+TRAJES DE VICE CITY
+Reinvente o figurino como se cada pessoa tivesse escolhido o que vestir para uma tarde em Miami. Aproveite uma cor ou um detalhe da roupa original como ligação com a foto. Para adultos, escolha combinações como camisa de colarinho cubano aberta sobre camiseta lisa, camisa tropical com mangas dobradas, regata com jeans de cintura alta, calça de linho ou bermuda de sarja. Use acessórios com moderação. Para crianças, escolha peças casuais adequadas à idade, como camiseta gráfica, bermuda cargo, vestido leve ou tênis coloridos. Dê a cada pessoa um visual próprio e mantenha os olhos visíveis.
+
+POSES DE PROTAGONISTAS
+Mude a linguagem corporal para dar à cena a atitude de uma capa de GTA VI. Escolha uma pose diferente e natural para cada pessoa. Um adulto pode se apoiar de lado no para-lama de um cupê clássico com os braços cruzados. Outro pode ficar com o corpo levemente de perfil, uma mão no bolso e o rosto voltado para a câmera. Uma criança pode segurar um skate pela lateral ou apoiar um pé nele. Uma criança pequena pode acenar espontaneamente. Adapte as poses ao número de pessoas, à idade e à expressão da referência. Se houver apenas uma pessoa, dê a ela toda a atenção da composição. Preserve exatamente o número de pessoas da foto.
+
+CENÁRIO E ILUMINAÇÃO
+Crie uma avenida costeira de Vice City ao pôr do sol. Coloque palmeiras altas em silhueta, fachadas Art Déco com os primeiros néons acesos e um carro americano clássico dos anos 1970 estacionado junto à calçada. Faça o céu passar do laranja no horizonte para rosa, magenta, roxo e azul-escuro no alto. A luz dourada deve atingir os personagens de lado, recortando cabelos, ombros e dobras do tecido. Use o néon da avenida para acrescentar reflexos discretos nas sombras e na lataria. Mantenha os rostos bem iluminados e legíveis.
+
+ESTILO E COMPOSIÇÃO
+Use a linguagem visual das ilustrações promocionais de GTA VI: contornos escuros e precisos, pintura digital com textura sutil, sombras em blocos bem desenhados, cores saturadas e alto contraste. Concentre os detalhes nos olhos e nas expressões. Use um enquadramento levemente de baixo para cima, com perspectiva natural. Distribua as silhuetas em profundidade para que cada pessoa tenha espaço e nenhum rosto fique encoberto.
+
+FORMATO FINAL
+Crie um pôster vertical em proporção 3:4 para o Instagram. Enquadre os personagens de corpo inteiro, com margem acima das cabeças e abaixo dos pés. Reserve espaço no canto inferior esquerdo para o logotipo “grand theft auto”, com letras brancas empilhadas e contorno preto sobre o grande numeral “VI” em degradê rosa, roxo e laranja com silhuetas de palmeiras. Integre o logotipo à composição sem cobrir os personagens. Confira a semelhança de cada rosto com a referência e a anatomia das mãos antes de finalizar.
